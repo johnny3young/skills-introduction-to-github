@@ -1,1 +1,1 @@
-Whatever XD
+Welcome to my GitHub profile!
